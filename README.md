@@ -12,6 +12,19 @@
 
   <p align=center
 
-  ${\color{#e0ffff} kimi \space ou \space ryu \ he \space ⎠ \space any {}}$
+  ${\color{#a576b7} kimi \space ou \space ryu \ he \space ⎠ \space any {}}$
 
-  ok wip
+<p align=center 
+
+ ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+
+<p align=center
+
+[rentry](https://rentry.co/detectivegavin) ${\color{#fcecb7} ᛝ {}}$ [atabook](https://aquamarine.atabook.org) ${\color{#f8ceb7} ᛝ {}}$ [guns.lol](https://guns.lol/fieryones) ${\color{#f6b3b7} ᛝ {}}$ [strawpage](https://jenskimi.straw.page) ${\color{#f376b7} ᛝ {}}$ [pt-awards](https://github.com/pt-awards)
+
+<p align=center
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Henny+Penny&letterSpacing=&pause=1000&color=BD76B7&width=435&lines=you+might+as+well+just+come+around)](https://git.io/typing-svg)
+
+![creds to kaizer lauv yuuu/p](https://file.garden/acu4zuww3CLdG7C4/IMG_3854.webp)
