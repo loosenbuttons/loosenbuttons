@@ -14,6 +14,10 @@
 
   ${\color{#a576b7} kimi \space ou \space ryu \ he \space ⎠ \space any {}}$
 
+<p align=center
+
+${\color{#f8ceb7} semi \space inactive{}}$
+  
 <p align=center 
 
  ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
