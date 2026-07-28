@@ -25,7 +25,7 @@ ${\color{#f8ceb7} semi \space inactive{}}$
 
 <p align=center
 
-[rentry](https://rentry.co/detectivegavin) ${\color{#fcecb7} ᛝ {}}$ [atabook](https://aquamarine.atabook.org) ${\color{#f8ceb7} ᛝ {}}$ [guns.lol](https://guns.lol/fieryones) ${\color{#f6b3b7} ᛝ {}}$ [strawpage](https://jenskimi.straw.page) ${\color{#f376b7} ᛝ {}}$ [pt-awards](https://github.com/pt-awards) ${\color{#f6b3b7} ᛝ {}}$ [title-town](https://github.com/title-town)
+[rentry](https://rentry.co/detectivegavin) ${\color{#fcecb7} ᛝ {}}$ [atabook](https://aquamarine.atabook.org) ${\color{#f8ceb7} ᛝ {}}$ [guns.lol](https://guns.lol/fieryones) ${\color{#f6b3b7} ᛝ {}}$ [strawpage](https://jenskimi.straw.page) 
 
 <p align=center
 
