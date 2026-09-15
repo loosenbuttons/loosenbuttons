@@ -10,4 +10,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&size=24&pause=1000&color=682037&width=435&lines=i+believe+that+good+things%2C;only+come+to+those+who+wait.)](https://git.io/typing-svg)
 
+![nade by me!](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915103929.png)
+![madeby me ooto](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105024.png)
+
 ![tis too, aww bmw jenson](https://file.garden/acu4zuww3CLdG7C4/IMG_8598.gif)
