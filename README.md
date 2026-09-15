@@ -2,8 +2,7 @@
 
 ![also made by me](https://file.garden/acu4zuww3CLdG7C4/IMG_8599.gif)
 
-
-
+![](https://img.shields.io/badge/22-jb?style=flat&label=jb&labelColor=200945&color=9E332D)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&size=24&pause=1000&color=9E332D&width=435&lines=do+you+believe+in+love+at+first+sight%3F;do+you+believe+in+fate%3F)](https://git.io/typing-svg)
 
