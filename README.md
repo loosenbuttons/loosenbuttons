@@ -13,6 +13,6 @@
 ![nade by me!](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915103929.png)
 ![madeby me ooto](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105024.png)
 
-[![hello made by me](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105758.png)](https://guns.lol/kittykonen) [![hey](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105444.png)](https://rentry.co/kimijenson) [![gopdbye](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105717.png)](https://iceicebaby.atabook.org) [![ok](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915105917.png)](https://jenskimi.straw.page)
+[![hello made by me](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915112049.png)](https://guns.lol/kittykonen) [![hey](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915112108.png)](https://rentry.co/kimijenson) [![gopdbye](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915112057.png)](https://iceicebaby.atabook.org) [![ok](https://file.garden/acu4zuww3CLdG7C4/Untitled63_20260915112026.png)](https://jenskimi.straw.page)
 
 ![tis too, aww bmw jenson](https://file.garden/acu4zuww3CLdG7C4/IMG_8598.gif)
